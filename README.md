@@ -1,2 +1,5 @@
-# choices-game-free-diamonds-and-keys-no-verification
-Choices free diamonds and keys 2022 without verification Cheat codes
+# Choices free diamonds and keys 2022 without verification
+
+Choices free diamonds and keys 2022 without verification Cheat codes - Usually, in order to obtain resources, treasures and experience points, you can do many things, such as farming in battle scenes. Unless you are AFK, the best and most effective way to get a reward is to complete all your tasks. Otherwise, if you are AFK, switch the game to automatic combat mode and let your character go to town to find the enemy he or she wants. If you want to put down your phone and let the game go on indefinitely, please turn off the automatic locking mode of your phone. In fact, you can complete the whole game automatically if you want. When you are in the middle of a task, click this task to make your role move towards the task automatically. When you are in battle, click the auto battle button to let your character automatically complete all tasks, except using healing items. You can still use healing items by clicking the potion icon, and the automatic battle will continue. Your character will automatically use regular attacks and special attacks. how to get free keys in choices without downloading apps
+
+<a href="https://windmod.icu/choices/">Go here</a>
